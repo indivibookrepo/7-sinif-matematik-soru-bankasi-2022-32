@@ -1,0 +1,1 @@
+# 7-sinif-matematik-soru-bankasi-2022-32
